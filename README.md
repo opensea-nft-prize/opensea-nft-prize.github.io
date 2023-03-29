@@ -1,0 +1,1 @@
+# opensea-nft-prize.github.io
